@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...rthrtehrt
-- 📫 How to reach me ...taerdtyert u
+- 📫 How to reach me ...taerdtyert uj etyyte
  q43t3a resgdfretu u
 <!---dtyj tyou
 tarashchevich21/tarashchevich21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
