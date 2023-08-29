@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tarashchevich21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...rthrtehrt jyt jrt
+- 💞️ I’m looking to collaborate on ...rthrtehrt jyt jrt t5th555556
 - 📫 How to reach me ...taerdtyert uj etyyte
  q43t3a resgdfretu ujhk 
 <!---dtyj tyou
