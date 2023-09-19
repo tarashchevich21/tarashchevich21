@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @tarashchevich21
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ytry trtr y54 y5yyjwrt jwrt yeryeryer
-- 💞️ I’m looking to collaborate on ...rthrtehrt jyt jrt t5th555556j fgh
-- 📫 How to reach me ...taerdtyert uj etyyte 6456tryrt yw5 jrtjs5ujs5  tjtrj trjj yrtjry tjy eryr yerhfk yu jtyjtyx
+- 💞️ I’m looking to collaborate on ...rthrtehrt jyt jrt t5th555556j fghh trh
+- 📫 How to reach me ...taerdtyert uj etyyte 6456tryrt yw5 jrtjs5ujs5  tjtrj trjj yrtjry tjy eryr yerhfk yu jtyjtyx tgtr
  q43t3a resgdfretu ujhk  o78o87 87y 33y 34y
 <!---dtyj tyou
 tarashchevich21/tarashchevich21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
